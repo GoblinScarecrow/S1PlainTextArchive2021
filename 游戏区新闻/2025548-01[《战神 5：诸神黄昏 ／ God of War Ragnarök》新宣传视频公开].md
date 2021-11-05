@@ -101,7 +101,7 @@ God of War Ragnarök is coming. ❄️
 
 
 origin_202109100500345348.jpg
-(96.34 KB, 下载次数: 0)
+(96.34 KB, 下载次数: 2)
 
 
 下载附件
@@ -285,9 +285,7 @@ origin_202109100500345348.jpg
 ####  史三问  
 ##### 25#       发表于 2021-9-10 07:09
 
-
-没创新也不奇怪就是了
-这次能不能少点飞斧敲钟啊
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 *****
@@ -502,13 +500,7 @@ origin_202109100500345348.jpg
 ####  谢俊豪  
 ##### 46#       发表于 2021-9-10 08:38
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689154&amp;ptid=2025548" target="_blank">你号又双叒没了 发表于 2021-9-10 08:24</a>
-
-这次初始状态归零怎么圆？
-
-上代结尾没死，技能和武器开头直接能用？</blockquote>
-开头试图开船前往阿斯加德，遭遇雷神/海妖，沉船，一切归零。
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 *****
@@ -744,8 +736,6 @@ origin_202109100500345348.jpg
 又看了一遍预告片，目前表现出来的新内容除了敌人种类增多外基本没有，确实有点失望。讲真上一代在我心里是满分作品，即使这一代真做成大型dlc我也是能接受的，只要故事讲好就行，但果然还是希望制作组能给一些影响到整个系统，改变玩法的新东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
-
-
 *****
 
 ####  萨妃螺丝  
@@ -762,8 +752,6 @@ origin_202109100500345348.jpg
 
 
 不舔黑命贵就不舒服
-
-
 
 
 *****
@@ -795,8 +783,6 @@ origin_202109100500345348.jpg
 视频里有一段都在刷床头灯给我笑傻了
 
 
-
-
 *****
 
 ####  radar  
@@ -824,8 +810,6 @@ origin_202109100500345348.jpg
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">3代才是最有诸神黄昏味的
-
-
 
 
 *****
@@ -902,6 +886,21 @@ boss多，量大管饱
 P了一张感觉毫无违和感<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| cmnewfan| + 1|好评加鹅|
+
+
+查看全部评分
+
+
 *****
 
 ####  ads147147  
@@ -966,8 +965,6 @@ P了一张感觉毫无违和感<img src="https://static.saraba1st.com/image/smil
 
 
 哪里有说这部是北欧篇完结
-
-
 
 
 *****
@@ -1088,8 +1085,6 @@ Herman在后面的采访里说的，不知道有没有歧义
 2021-9-10 11:05 上传
 
 
-
-
 *****
 
 ####  a2042312  
@@ -1146,8 +1141,6 @@ Herman在后面的采访里说的，不知道有没有歧义
 大概是boy的老婆 黑妹名字来源是神话里洛基的情妇。  耶梦加得 芬里尔 海拉 三个都是她生下的
 
 
-
-
 *****
 
 ####  Marsoy  
@@ -1177,8 +1170,6 @@ Herman在后面的采访里说的，不知道有没有歧义
 看到知乎有人分析如果奥丁是好人，芙蕾雅的目的是把洛基弄成原神话里的黑化大魔王（为父报仇），那么确实有可能这一部就写完了，问题是之前铺垫了那么久奥丁是独裁狂，索尔是杀人狂魔的事，就这样算了？
 
 还有看到原神话里，诸神黄昏结束后，巴德尔就会复活，这样芙蕾雅报复的理由可能不复存在？说不定这次会大团圆结局也说不定。
-
-
 
 
 *****
@@ -1217,9 +1208,18 @@ Herman在后面的采访里说的，不知道有没有歧义
 ##### 108#       发表于 2021-9-10 12:08
 
 
+ 本帖最后由 SergeGlenn 于 2021-9-10 12:10 编辑 
+
 不知道你们看过noclip那个战神访谈没，里面Cory不小心说了一些提尔毁灭巨魔文明的黑历史。。。
 
+<img src="https://img.saraba1st.com/forum/202109/10/121002akxqdj8g822x5xfg.jpg" referrerpolicy="no-referrer">
 
+
+<strong>IMG_20210910_120722.jpg</strong> (288.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-10 12:10 上传
 
 
 *****
@@ -1243,8 +1243,6 @@ Herman在后面的采访里说的，不知道有没有歧义
 
 
 泥潭都反尼哥反到魔怔了，这黑妹的脸已经算迎合大多数人的审美了吧。
-
-
 
 
 *****
@@ -1309,8 +1307,6 @@ Herman在后面的采访里说的，不知道有没有歧义
 要是新战神是埃及背景有个黑皮人设估计也没人说啥
 
 
-
-
 *****
 
 ####  wgoenitz  
@@ -1340,18 +1336,12 @@ Herman在后面的采访里说的，不知道有没有歧义
 提尔的左手上印的符文挺像埃及的象形文字，会是去旅游时的纪念品吗。
 
 
-
-
 *****
 
 ####  史三问  
 ##### 119#       发表于 2021-9-10 13:06
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52690716&amp;ptid=2025548" target="_blank">radar 发表于 2021-9-10 10:09</a>
-
-然而Kratos本来也是个黑叔叔的样子…</blockquote>
-斯巴达人到你嘴里变黑叔叔了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 *****
@@ -1403,8 +1393,6 @@ Herman在后面的采访里说的，不知道有没有歧义
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
 *****
 
 ####  沙发果冻  
@@ -1426,8 +1414,6 @@ Herman在后面的采访里说的，不知道有没有歧义
 主要是骨灰附体那段对比太明显
 
 
-
-
 *****
 
 ####  里神经  
@@ -1438,8 +1424,6 @@ Herman在后面的采访里说的，不知道有没有歧义
 看到知乎有人分析如果奥丁是好人，芙蕾雅的目的是把洛基弄成原神话里的黑化大魔王（为父报仇），那么确实 ...</blockquote>但是原神话里诸神黄昏之后还有一个神带来的真正的诸神黄昏，比苏尔特尔还可怕，大概率是外来神，反应的大约是基督教入侵，那个外来神本来有可能是上帝，换成奎爷好像也没啥问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
 
 
 *****
@@ -1481,8 +1465,6 @@ ps2后期，当时大家普遍大场面还见的不多，战神2相比鬼泣鬼�
 不像现在，创意枯竭，成本上天，玩家群体审美疲劳，新鲜血液不往主机上走
 
 
-
-
 *****
 
 ####  黄昏之月  
@@ -1495,8 +1477,6 @@ ps2后期，当时大家普遍大场面还见的不多，战神2相比鬼泣鬼�
 上一部的背影明显看得出是个胖子
 
 
-
-
 *****
 
 ####  弹簧电光  
@@ -1504,8 +1484,6 @@ ps2后期，当时大家普遍大场面还见的不多，战神2相比鬼泣鬼�
 
 
 上作女武神都打光了，这次能凑个啥强力战队呢
-
-
 
 
 *****
@@ -1558,8 +1536,6 @@ ps2后期，当时大家普遍大场面还见的不多，战神2相比鬼泣鬼�
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">说真的西游记里出现深色皮肤人种都比北欧神话靠谱，至少唐朝真的有昆仑奴，佛教也源自古印度
 
 
-
-
 *****
 
 ####  yukinosarai  
@@ -1567,8 +1543,6 @@ ps2后期，当时大家普遍大场面还见的不多，战神2相比鬼泣鬼�
 
 
 不管怎么喷，新战神2出了之后只要不是像奇迹2那样喂屎，保持基本质量，还是稳稳破千万的
-
-
 
 
 *****
@@ -1597,13 +1571,7 @@ ps2后期，当时大家普遍大场面还见的不多，战神2相比鬼泣鬼�
 ####  史三问  
 ##### 140#       发表于 2021-9-10 17:22
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697055&amp;ptid=2025548" target="_blank">popchong 发表于 2021-9-10 16:31</a>
-
-说真的西游记里出现深色皮肤人种都比北欧神话靠谱，至少唐朝真的有昆仑奴，佛教也源自古印度 ...</blockquote>
-想啥呢，日本人和美国人怎么会出中国神话题材，上次在提尔老窝里也是三云雷纹，现在普遍代表日文的
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 *****
@@ -1628,8 +1596,6 @@ Cory则表示：“我觉得此处会有很棒的设定，他虽然不是那种�
 Eric最后补充道：“我想让他有Man Child（外型成熟内心幼稚）的感觉，因为当你有那么强大的力量，可以做到那么多的事情，那么你将不会成长，因为没那个必要，只需要为所欲为就行了。”
 
 
-
-
 *****
 
 ####  hkguty  
@@ -1637,5 +1603,451 @@ Eric最后补充道：“我想让他有Man Child（外型成熟内心幼稚）�
 
 
 洛基明显就是一副千叮万嘱叫他别惹祸，结果还是要自己拼命惹祸的典型，太套路了
+
+
+*****
+
+####  Piano-Forest  
+##### 143#         楼主| 发表于 2021-10-8 11:03
+
+
+[https://bbs.saraba1st.com/2b/for ... d=4&amp;tid=2025548](https://bbs.saraba1st.com/2b/forum.php?mod=post&amp;action=reply&amp;fid=4&amp;tid=2025548)
+
+支持配音+字幕的语言：阿拉伯语、英语、法语、德语、希腊语、意大利语、日语、波兰语、葡萄牙语（欧洲）、葡萄牙语（巴西）、俄语、西班牙语（欧洲）、西班牙语（拉丁美洲）
+
+
+仅支持字幕的语言：中文（简体）、中文（繁体）、克罗地亚语、捷克语、荷兰语、匈牙利语、韩语、泰语、土耳其语
+
+
+The languages available to you will be dependent on the region in which you purchase the game. Not all languages will be available on every game SKU.
+
+
+玩家可以使用的语言取决于是在哪个地区购买的，并非所有人都能在游戏中体验到全部的语言支持
+
+
+*****
+
+####  byisme001  
+##### 144#       发表于 2021-10-8 11:42
+
+
+战神2018里奎秃干嘛要扭巴德尔脖子，那是人家家事，儿子想杀马，马也乐意，瞎掺和啥
+
+
+*****
+
+####  躺平划水摸鱼  
+##### 145#       发表于 2021-10-8 11:57
+
+
+<blockquote>byisme001 发表于 2021-10-8 11:42
+战神2018里奎秃干嘛要扭巴德尔脖子，那是人家家事，儿子想杀马，马也乐意，瞎掺和啥 ...</blockquote>
+芙蕾雅救了他儿子。奎爷一直是恩仇必报。
+
+
+*****
+
+####  kuker53  
+##### 146#       发表于 2021-10-19 07:38
+
+
+Q：非常期待本作的正式推出！预告视频中能看到斧子和盾牌等前作里有过登场的武器，请问本作还会有新的武器登场吗？
+
+
+Eric：我们当然设计了新武器。此外，本作中应该还会登场在过去作品里已经出现过的武器。更多情报请期待后续报道。
+
+
+媒体独家的内容，转一句没关系吧
+
+
+
+
+*****
+
+####  adslnet0519  
+##### 147#       发表于 2021-10-19 10:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53034411&amp;ptid=2025548" target="_blank">躺平划水摸鱼 发表于 2021-10-8 11:57</a>
+芙蕾雅救了他儿子。奎爷一直是恩仇必报。</blockquote>
+巴德尔先把🐴打死，然后奎大爷再把巴德尔打死，没有人受伤的世界是不是就达成了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  popchong  
+##### 148#       发表于 2021-10-19 10:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53187080&amp;ptid=2025548" target="_blank">kuker53 发表于 2021-10-19 07:38</a>
+
+Q：非常期待本作的正式推出！预告视频中能看到斧子和盾牌等前作里有过登场的武器，请问本作还会有新的武器 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">反正斧子扔出去之后肉搏已经很带劲了，能不能来个大力神拳套
+
+
+*****
+
+####  躺平划水摸鱼  
+##### 149#       发表于 2021-10-19 10:21
+
+
+ 本帖最后由 躺平划水摸鱼 于 2021-10-19 10:23 编辑 
+<blockquote>popchong 发表于 2021-10-19 10:13
+反正斧子扔出去之后肉搏已经很带劲了，能不能来个大力神拳套</blockquote>
+我猜游戏中盘干死索尔拿到喵喵锤以后可以斧锤双持——我捶！我捶！我捶散你们这帮死基佬呀！！！
+
+另外救出提尔后可以使用提尔的长枪(二代枪_模组)。
+
+
+
+
+*****
+
+####  kuker53  
+##### 150#       发表于 2021-10-19 10:38
+
+
+根据新系列主创埃里克·威廉姆斯的说法，在战神系列的新作《战神：诸神黄昏》里，主人公奎托斯和他的儿子将会结束这段北欧的传奇旅程，并将会给他们这段史诗级的旅程画上令人惊喜且完美的句号
+
+
+他在接受IGN采访时表示，圣莫妮卡工作室希望通过《战神：诸神黄昏》这部作品来讲述一个战神父子之间感情真挚的史诗级故事，记录他们的旅途经历和内心挣扎的心路历程。玩家可以看到奎爷与他儿子之间戏剧性的生活片段，以及看他们如何处理好父子之间的情绪。对于制作团队来说，如何处理好这两点很重要。
+
+
+他还表示想给玩家带来一个出人意料又在情理之中的结局，就如标题所说“诸神黄昏”即将来临。并且在本部作品中还将会有6个有能力打败奎爷的神话人物，游戏作战系统将**改善，增加更多纵向空间战斗和新技能，包括各种可伸缩盾牌的防御能力。除此之外，玩家还可以看到更多关于奎托斯父子的小花絮，圣莫妮卡工作室将竭尽全力打造出一部配得上《战神》这个招牌的新作。
+
+
+
+
+*****
+
+####  躺平划水摸鱼  
+##### 151#       发表于 2021-10-19 11:01
+
+
+<blockquote>kuker53 发表于 2021-10-19 10:38
+根据新系列主创埃里克·威廉姆斯的说法，在战神系列的新作《战神：诸神黄昏》里，主人公奎托斯和他的儿子将 ...</blockquote>
+前作把女武神女王也算上的话，也是六个BOSS——巴德尔、暗精灵大只佬、鸡翅龙、索尔的两个傻儿子、女武神女王。
+
+感觉不太妙。
+
+
+*****
+
+####  476803870  
+##### 152#       发表于 2021-10-19 11:04
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+*****
+
+####  hotsmile  
+##### 153#       发表于 2021-10-19 11:07
+
+
+可以空连了？
+
+
+
+
+*****
+
+####  木架穷奇  
+##### 154#       发表于 2021-10-19 11:38
+
+
+我好奇的是，如果这次光头真的领便当了，那战神这个IP还要做下去吗
+
+
+*****
+
+####  木架穷奇  
+##### 155#       发表于 2021-10-19 11:40
+
+
+还有就是能不能整个血宫什么的，end game内容太少了，只能打打试炼
+
+
+*****
+
+####  vacuumsword  
+##### 156#       发表于 2021-10-19 11:41
+
+
+我倒是想要奥林匹斯之剑。要革北欧神话的命还得有个够格的武器。
+
+
+
+
+*****
+
+####  终极答案42  
+##### 157#       发表于 2021-10-19 13:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53189966&amp;ptid=2025548" target="_blank">木架穷奇 发表于 2021-10-19 11:38</a>
+
+我好奇的是，如果这次光头真的领便当了，那战神这个IP还要做下去吗</blockquote>
+反正光头已经挂过一次了，他的象征图腾又是凤凰
+
+
+
+
+*****
+
+####  tengshuo980  
+##### 158#       发表于 2021-10-19 13:10
+
+
+反正我觉得肯定要去地府一趟
+
+
+
+
+*****
+
+####  415452356  
+##### 159#       发表于 2021-10-19 14:03
+
+
+  死了都能从地府爬回来，老三部曲每作都去一趟，就看看没有希腊地府之后奎爷死了是直接死透还是进北欧地府了
+
+
+
+
+*****
+
+####  DelayNoMore  
+##### 160#       发表于 2021-10-19 14:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53191769&amp;ptid=2025548" target="_blank">415452356 发表于 2021-10-19 14:03</a>
+死了都能从地府爬回来，老三部曲每作都去一趟，就看看没有希腊地府之后奎爷死了是直接死透还是进北欧地府 ...</blockquote>
+已经进去过了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  DelayNoMore  
+##### 161#       发表于 2021-10-19 14:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53189966&amp;ptid=2025548" target="_blank">木架穷奇 发表于 2021-10-19 11:38</a>
+我好奇的是，如果这次光头真的领便当了，那战神这个IP还要做下去吗</blockquote>
+过个三十年，洛基变成奎爷的样子<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+*****
+
+####  jokertx  
+##### 162#       发表于 2021-10-19 14:30
+
+
+上一作太tps了，如果有空连会有意思很多
+
+
+----发送自 [OnePlus HD1900,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+
+
+*****
+
+####  415452356  
+##### 163#       发表于 2021-10-19 16:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53191811&amp;ptid=2025548" target="_blank">DelayNoMore 发表于 2021-10-19 14:08</a>
+
+已经进去过了
+
+
+—— 来自 S1Fun</blockquote>
+  是去过，但是不确定死了会不会进本地地府，毕竟从1的表现来看北欧神话的一些体系好像对奎爷没啥用
+
+
+
+
+*****
+
+####  Piano-Forest  
+##### 164#         楼主| 发表于 2021-10-20 22:57
+
+
+ 本帖最后由 Piano-Forest 于 2021-10-20 23:05 编辑 
+
+战神 4上Steam了，2022年1月15日推出，国区售价¥ 279.00：
+[https://store.steampowered.com/app/1593500/](https://store.steampowered.com/app/1593500/)
+
+
+*****
+
+####  刘思慕  
+##### 165#       发表于 2021-10-20 23:02
+
+
+PS5,狗都不买
+
+
+*****
+
+####  azraelwang  
+##### 166#       发表于 2021-10-20 23:03
+
+
+索尼，真有你的啊<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Piano-Forest  
+##### 167#         楼主| 发表于 2021-10-20 23:04
+
+
+[https://youtu.be/HqQMh_tij0c](https://youtu.be/HqQMh_tij0c)
+<img src="https://p.sda1.dev/2/054f9ec4b9b489a1f4e87d2d96ec1ed9/20211020_230405.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BigLittle1999  
+##### 168#       发表于 2021-10-20 23:05
+
+
+索尼，该断气了
+
+
+
+
+*****
+
+####  木架穷奇  
+##### 169#       发表于 2021-10-20 23:23
+
+
+我擦类，这真是
+
+hhhhhhhh
+
+
+
+
+*****
+
+####  Piano-Forest  
+##### 170#         楼主| 发表于 2021-10-20 23:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53213369&amp;ptid=2025548" target="_blank">Piano-Forest 发表于 2021-10-20 22:57</a>
+
+战神 4上Steam了，2022年1月15日推出，国区售价¥ 279.00：
+
+https://store.steampowered.com/app/1593500/
+
+ ...</blockquote>
+截止2021年8月，战神 4已在PS4平台上卖出1950万套
+
+[https://blog.playstation.com/202 ... 18-is-coming-to-pc/](https://blog.playstation.com/2021/10/20/god-of-war-2018-is-coming-to-pc/)
+
+As of August 2021, 19.5MM copies for God of War on PlayStation 4 have been sold through and we can’t wait to share that experience with a whole new group of players on PC. 
+
+
+
+
+*****
+
+####  a2042312  
+##### 171#       发表于 2021-10-21 07:27
+
+
+ 本帖最后由 a2042312 于 2021-10-21 07:31 编辑 
+
+虽说也骨折好长时间了，不过居然也快2000W了，难怪还要出PS4版，只要质量不翻车销量应该也能挺好。
+
+
+
+
+*****
+
+####  920619lqy  
+##### 172#       发表于 2021-10-21 07:51
+
+
+<blockquote>415452356 发表于 2021-10-19 02:58
+是去过，但是不确定死了会不会进本地地府，毕竟从1的表现来看北欧神话的一些体系好像对奎爷没啥用 ...</blockquote>
+不好说，毕竟按北欧神话的设定，巴德尔的不死身是因为他妈求万物卖个面子所以只有槲寄生这唯一一个不给面子的可破，然后老秃子同样破不了他的防，大概到了北欧就得入乡随俗。
+
+
+
+
+*****
+
+####  1981112  
+##### 173#       发表于 2021-10-21 10:03
+
+
+上了PC，效果更好了。
+
+莫非以后索尼的独占都是限时独占了？？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  躺平划水摸鱼  
+##### 174#       发表于 2021-10-21 10:09
+
+
+<blockquote>DelayNoMore 发表于 2021-10-19 14:09
+过个三十年，洛基变成奎爷的样子
+
+
+—— 来自 S1Fun</blockquote>
+遗传性脱发
+
+
+*****
+
+####  天妇罗  
+##### 175#       发表于 2021-10-21 10:11
+
+
+50刀搞笑呢？
+
+
+*****
+
+####  躺平划水摸鱼  
+##### 176#       发表于 2021-10-21 10:13
+
+
+<blockquote>tengshuo980 发表于 2021-10-19 13:10
+反正我觉得肯定要去地府一趟</blockquote>
+已经去过赫尔海姆两趟了，一次是去找救熊孩子的药，一次是熊孩子不听话乱搞事结果把父子俩和巴德尔(还有一个死人头)都弄到赫尔海姆去了。
+
+
+
+
+*****
+
+####  DelayNoMore  
+##### 177#       发表于 2021-10-21 18:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53217348&amp;ptid=2025548" target="_blank">躺平划水摸鱼 发表于 2021-10-21 10:09</a>
+
+遗传性脱发</blockquote>
+毛囊转移综合征，临场表现为头部毛囊集体转移至脸颊和下颚
 
 
